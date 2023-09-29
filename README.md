@@ -1,0 +1,1 @@
+# pensamentocompotusional1A
